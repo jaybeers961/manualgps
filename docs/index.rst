@@ -1,6 +1,6 @@
 How to Update Your Garmin Nuvi Maps Effectively?
 
-Introduction
+
 ============
 
 Keeping your Garmin Nuvi GPS device up to date is essential 
